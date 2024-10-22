@@ -1,3 +1,3 @@
-Touhou enjoyer, Tenshi is my favorite character.
+Photography, Art and Piano enjoyer.
 
-Check out this cutie, under the name [Devork](https://github.com/devorkk).
+Check out this [Cutie](https://github.com/devorkk). over here
