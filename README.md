@@ -1,3 +1,3 @@
 Photography, Art and Piano enjoyer.
 
-Check out this [Cutie](https://github.com/devorkk). over here
+Check out this [Cool individual](https://github.com/devorkk), his work is a masterpiece ✨
